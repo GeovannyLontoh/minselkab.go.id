@@ -1,0 +1,1 @@
+# minselkab.go.id
